@@ -23,34 +23,3 @@ Low-wage, immigrant agricultural workers are among the hardest hit communities b
 WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM. **Join me in supporting WeCount! and extending our resources to some of the members of our community who are struggling the most.**
 
 3. Another org
-
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/rebwill/give-miami-day-2020/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
