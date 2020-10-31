@@ -59,6 +59,8 @@ Low-wage, immigrant agricultural workers are among the hardest hit communities b
 
 WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM.
 
+![Image](https://pbs.twimg.com/profile_images/1182741031114149891/DVPRvBNO_400x400.jpg)
+
 ### [The Black Collective](https://www.givemiamiday.org/rebecca-tbc)
 
 Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities. Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
