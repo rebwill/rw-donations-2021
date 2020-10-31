@@ -6,7 +6,7 @@ My birthday has been on November 19th since way back in 1990. Yes, that means th
 
 I am humbled to look back on most of 2020 and be aware that I actually had an unusual amount of good fortune this year, all things considered. I was able to seal the deal on my career transition to software development, closing the door on a tumultuous and nervewracking previous year and beginning a new chapter with a wonderful team and learning environment; I failed spectacularly at fostering the sweetest angel baby dog in the world who is now My Dog; and I was able to spend over two months with my parents in Connecticut, and a week camping with my brother in the mountains of Colorado.
 
-All that to say that I am fortunate to have everything I need, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!
+All that to say that I am fortunate to have everything I need, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. **For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!**
 
 If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
 
@@ -29,7 +29,7 @@ From their [About](https://www.givemiamiday.org/about) page:
 
 ### ➡️ How do I donate?
 
-Click on the names of any of the organizations [above](#orgs-i-love) to be taken to my personal "Champion" page, where you can donate to the organization. Donating via this page means your contribution will be counted towards my fundraising total, which will be pretty cool to see!
+Click on the names of any of the organizations [below](#orgs-i-love) to be taken to my personal "Champion" page, where you can donate to the organization. Donating via this page means your contribution will be counted towards my fundraising total, which will be pretty cool to see!
 
 ### ➡️ Are there any matching or bonus opportunities?
 
@@ -45,7 +45,7 @@ Don't worry — same. I will be sending a couple of email reminders about Give M
 
 ![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
 
-### **1. [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)**
+### [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)
 
 The word that comes to mind when I think of Miami Waterkeeper's work is FIERCE. They are fierce when it comes to legal advocacy for our waters — a strategy that is both effective and unique among science- and community-based nonprofits in the marine sector. Their work has played a critical role in protecting our reefs from development projects and pollution; working to end sewage leaks that threaten our ecosystem; applying pressure to the Turkey Point Nuclear Plant to clean up its environmental impacts; the recently successful campaign to reduce fertilizer runoff into Biscayne Bay, which causes both acute and chronic die-offs of seagrass and marine life; among many more efforts.
 
@@ -53,12 +53,14 @@ Along with their legal advocacy efforts, Miami Waterkeeper runs science and rese
 
 ![Image](https://pbs.twimg.com/profile_images/1175393336980660225/O0TMqHzE_400x400.jpg)
 
-### **2. [WeCount!](https://www.givemiamiday.org/rebecca-wc)**
+### [WeCount!](https://www.givemiamiday.org/rebecca-wc)
 
 Low-wage, immigrant agricultural workers are among the hardest hit communities by COVID-19. With few resources even before the pandemic, affected by layoffs in many industries, and ineligible for most state or federal forms of assistance, many families are struggling to meet basic needs like food and housing. All of this is compounded to their struggles even before the virus, like wage theft, working conditions, and legal vulnerability. 
 
-WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM. **Join me in supporting WeCount! and extending our resources to some of the members of our community who are struggling the most.**
+WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM.
 
-### **3. Another org**
+### [The Black Collective](https://www.givemiamiday.org/rebecca-tbc)
 
-asdf
+Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities. Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
+
+
