@@ -2,15 +2,50 @@ Greetings! I'm glad you're here.
 
 ## All I want for [my birthday] is [change]
 
-My birthday has been on November 19th since way back in 1990. Yes, that means that this year is the big 3-0 for me, as well as another happy coincidence: it turns out that I am sharing the day with our beloved Give Miami Day! It occurred to me that this is a wonderful chance to turn my birthday into a chance for larger impact.
+My birthday has been on November 19th since way back in 1990. Yes, that means that this year is the big 3-0 for me, as well as another happy coincidence: it turns out that I am sharing the day with our beloved [Give Miami Day](https://www.givemiamiday.org/)!
 
-There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. If — at the risk of being presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**.
+I am humbled to look back on most of 2020 and be aware that I actually had an unusual amount of good fortune this year, all things considered. I was able to seal the deal on my career transition to software development, closing the door on a tumultuous and nervewracking previous year and beginning a new chapter with a wonderful team and learning environment; I failed spectacularly at fostering the sweetest angel baby dog in the world who is now My Dog; and I was able to spend over two months with my parents in Connecticut, and a week camping with my brother in the mountains of Colorado.
+
+All that to say that I am fortunate to have everything I need, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!
+
+If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
+
+➡️ [FAQs](#faqs)
+
+➡️ [See the organizations](#orgs-i-love)
+
+---
+
+## FAQs
+
+### ➡️ What is Give Miami Day?
+
+From their [About](https://www.givemiamiday.org/about) page:
+> One of the nation's biggest 24-hour annual giving events, Give Miami Day is an online campaign where all locals are philanthropists. This year -- as our nonprofit community continues their essential work in the face of a serious pandemic, economic crisis and the impact of systemic racism -- Give Miami Day will be more vital than ever. While we all count on Miami-Dade's nonprofits to serve our region day after day, this time, they're counting on us. 
+
+> On Thursday, November 19th, 2020, we invite everyone to explore the online profiles of hundreds of Miami-Dade nonprofits that, with limited resources and staff, always find a way to provide the supplies, services and support our residents need. We encourage you to find a cause or an organization you believe in and make a charitable donation.
+
+> Since 2012, Give Miami Day has raised more than $61 million.
+
+### ➡️ How do I donate?
+
+Click on the names of any of the organizations [above](#orgs-i-love) to be taken to my personal "Champion" page, where you can donate to the organization. Donating via this page means your contribution will be counted towards my fundraising total, which will be pretty cool to see!
+
+### ➡️ Are there any matching or bonus opportunities?
+
+I'm glad you asked! Give Miami Day is FULL of cool surprises, bonuses, and matching opportunities, including issue-based "Power Hours" in which organizations will be eligible for extra $$$ based on the money raised during the hour. The Give Miami Day team will be announcing more details over the coming weeks including schedule!
+
+### ➡️ I am enthusiastic but potentially forgetful! Can you please remind me about Give Miami Day and any Power Hours?
+
+Don't worry — same. I will be sending a couple of email reminders about Give Miami Day proper (Nov. 19th), early giving days (starting Nov. 16th), and bonus opportunities like Power Hours once they are announced! If you would like to receive the reminder, [sign up here](https://forms.gle/hrq7YjmKUWU32ow29).
+
+---
 
 ## Orgs I love
 
 ![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
 
-**1. [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)**
+### **1. [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)**
 
 The word that comes to mind when I think of Miami Waterkeeper's work is FIERCE. They are fierce when it comes to legal advocacy for our waters — a strategy that is both effective and unique among science- and community-based nonprofits in the marine sector. Their work has played a critical role in protecting our reefs from development projects and pollution; working to end sewage leaks that threaten our ecosystem; applying pressure to the Turkey Point Nuclear Plant to clean up its environmental impacts; the recently successful campaign to reduce fertilizer runoff into Biscayne Bay, which causes both acute and chronic die-offs of seagrass and marine life; among many more efforts.
 
@@ -18,10 +53,12 @@ Along with their legal advocacy efforts, Miami Waterkeeper runs science and rese
 
 ![Image](https://pbs.twimg.com/profile_images/1175393336980660225/O0TMqHzE_400x400.jpg)
 
-**2. [WeCount!](https://www.givemiamiday.org/rebecca-wc)**
+### **2. [WeCount!](https://www.givemiamiday.org/rebecca-wc)**
 
 Low-wage, immigrant agricultural workers are among the hardest hit communities by COVID-19. With few resources even before the pandemic, affected by layoffs in many industries, and ineligible for most state or federal forms of assistance, many families are struggling to meet basic needs like food and housing. All of this is compounded to their struggles even before the virus, like wage theft, working conditions, and legal vulnerability. 
 
 WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM. **Join me in supporting WeCount! and extending our resources to some of the members of our community who are struggling the most.**
 
-3. Another org
+### **3. Another org**
+
+asdf
