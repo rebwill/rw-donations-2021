@@ -6,7 +6,7 @@ There are so many organizations doing incredible and necessary work in South Flo
 
 ## Orgs I love
 
-![Image](https://d3n8a8pro7vhmx.cloudfront.net/miamiwaterkeeper/pages/4429/attachments/original/1598109811/Christy_Raynor_-_Harbor_Island_between_East_and_West_Dr.jpg?1598109811)
+![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
 
 **1. [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)**
 
@@ -14,7 +14,7 @@ The word that comes to mind when I think of Miami Waterkeeper's work is FIERCE. 
 
 Along with their legal advocacy efforts, Miami Waterkeeper runs science and research programs, keeping their finger on the pulse of Biscayne Bay, along with community outreach programs training local residents to become defenders and advocates of our waters. Whether we know it or not, we *all* rely on Miami Waterkeeper's efforts much more than many of our residents and leaders realize. **Join me in protecting the lifeblood of our community — clean water and healthy marine ecosystems — and supporting Miami Waterkeeper this Give Miami Day.**
 
-![Image](https://pbs.twimg.com/media/ElHttj2WkAAhgNd?format=jpg&name=small)
+![Image](https://pbs.twimg.com/profile_images/1175393336980660225/O0TMqHzE_400x400.jpg)
 
 **2. [WeCount!](https://www.givemiamiday.org/rebecca-wc)**
 
