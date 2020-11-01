@@ -65,11 +65,15 @@ WeCount! works to provide legal, social, and survival support for these families
 
 Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities. Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
 
+![Image](https://pbs.twimg.com/profile_images/451899253934538752/CzJedDwl_400x400.jpeg)
+
 ### ➡️ [Lotus House](https://www.givemiamiday.org/rebecca-lt)
 
 Lotus House is dedicated to improving the lives of homeless women, youth and children. They currently provide housing, food, shelter, education, therapeutic support, and more for over 500 women and children, most of whom are people of color whose lives have been marked by poverty, violence, and discrimination. As you can imagine, the needs that Lotus House is working to meet are greater than ever as even more families have gone into crisis this year — in addition to the fact that they had to cancel their largest fundraising event of the year.
 
 Guided by trauma-informed, evidence-based, best practices, Lotus House is a bright light amidst difficult and dangerous times for many women, youth, and children, offering support for basic needs, education, therapy, and more. They are more in need of our support than ever.
+
+![Image](https://pbs.twimg.com/profile_images/1216021438626500608/7IceWZAM_400x400.jpg)
 
 ### ➡️ [The Alliance for GLBTQ Youth](https://www.givemiamiday.org/rebecca-agy)
 
