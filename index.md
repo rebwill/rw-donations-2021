@@ -2,7 +2,7 @@ Greetings! I'm glad you're here.
 
 ## All I want for [my birthday] is [change]
 
-My birthday has been on November 19th since way back in 1990. Yes, that means that this year is the big 3-0 for me, as well as another happy coincidence: it turns out that I am sharing the day with the wonderful [Give Miami Day](https://www.givemiamiday.org/) (one of the biggest [fundraising days](#faqs) of the year for hundreds of South Florida nonprofits)!
+In a happy coincidence, it turns out that this year, my birthday will be sharing the upcoming date of November 19th with the venerable [Give Miami Day](https://www.givemiamiday.org/) (one of the biggest [fundraising days](#faqs) of the year for hundreds of South Florida nonprofits)!
 
 I am humbled to look back on most of 2020 and be aware that I actually had an unusual amount of good fortune this year, all things considered. I was able to seal the deal on my career transition to software development, closing the door on a tumultuous and nervewracking previous year and beginning a new chapter with a wonderful team and learning environment; I failed spectacularly at fostering the sweetest angel baby dog in the world who is now My Dog; and I was able to spend over two months with my parents in Connecticut, and a week camping with my brother in the mountains of Colorado.
 
