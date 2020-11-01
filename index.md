@@ -2,7 +2,7 @@ Greetings! I'm glad you're here.
 
 ## All I want for [my birthday] is [change]
 
-My birthday has been on November 19th since way back in 1990. Yes, that means that this year is the big 3-0 for me, as well as another happy coincidence: it turns out that I am sharing the day with our beloved [Give Miami Day](https://www.givemiamiday.org/)!
+My birthday has been on November 19th since way back in 1990. Yes, that means that this year is the big 3-0 for me, as well as another happy coincidence: it turns out that I am sharing the day with the wonderful [Give Miami Day](https://www.givemiamiday.org/) (one of the biggest [fundraising days](#faqs) of the year for hundreds of South Florida nonprofits)!
 
 I am humbled to look back on most of 2020 and be aware that I actually had an unusual amount of good fortune this year, all things considered. I was able to seal the deal on my career transition to software development, closing the door on a tumultuous and nervewracking previous year and beginning a new chapter with a wonderful team and learning environment; I failed spectacularly at fostering the sweetest angel baby dog in the world who is now My Dog; and I was able to spend over two months with my parents in Connecticut, and a week camping with my brother in the mountains of Colorado.
 
@@ -12,7 +12,7 @@ If — at the risk of sounding presumptuous — you were considering getting me 
 
 ➡️ [FAQs](#faqs)
 
-➡️ [See the organizations](#orgs-i-love)
+➡️ [See the organizations](#my-selected-organizations)
 
 ---
 
@@ -41,7 +41,9 @@ Don't worry — same. I will be sending a couple of email reminders about Give M
 
 ---
 
-## Orgs I love
+## My Selected Organizations
+
+There are hundreds of nonprofits raising money on Give Miami Day that are doing excellent and necessary work, and I wish I could fully fund them all! In the meantime, I have selected 5 of my favorites for us to focus on this year. Check them out below!
 
 ![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
 
@@ -57,13 +59,13 @@ Along with their legal advocacy efforts, Miami Waterkeeper runs science and rese
 
 Low-wage, immigrant agricultural workers are among the hardest hit communities by COVID-19. With few resources even before the pandemic, affected by layoffs in many industries, and ineligible for most state or federal forms of assistance, many families are struggling to meet basic needs like food and housing. All of this is compounded to their struggles even before the virus, like wage theft, working conditions, and legal vulnerability. 
 
-WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM.
+**WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM.**
 
 ![Image](https://pbs.twimg.com/profile_images/1182741031114149891/DVPRvBNO_400x400.jpg)
 
 ### ➡️ [The Black Collective](https://www.givemiamiday.org/rebecca-tbc)
 
-Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities. Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
+**Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities.** Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
 
 ![Image](https://pbs.twimg.com/profile_images/451899253934538752/CzJedDwl_400x400.jpeg)
 
@@ -71,7 +73,7 @@ Led by accomplished local leaders, the Black Collective works to promote a share
 
 Lotus House is dedicated to improving the lives of homeless women, youth and children. They currently provide housing, food, shelter, education, therapeutic support, and more for over 500 women and children, most of whom are people of color whose lives have been marked by poverty, violence, and discrimination. As you can imagine, the needs that Lotus House is working to meet are greater than ever as even more families have gone into crisis this year — in addition to the fact that they had to cancel their largest fundraising event of the year.
 
-Guided by trauma-informed, evidence-based, best practices, Lotus House is a bright light amidst difficult and dangerous times for many women, youth, and children, offering support for basic needs, education, therapy, and more. They are more in need of our support than ever.
+**Guided by trauma-informed, evidence-based, best practices, Lotus House is a bright light amidst difficult and dangerous times for many women, youth, and children, offering support for basic needs, education, therapy, and more.** They are more in need of our support than ever.
 
 ![Image](https://pbs.twimg.com/profile_images/1216021438626500608/7IceWZAM_400x400.jpg)
 
@@ -79,5 +81,5 @@ Guided by trauma-informed, evidence-based, best practices, Lotus House is a brig
 
 The Alliance supports GLBTQ youth and their families through care coordination services; family advocacy and support; education and awareness activities; practice and evidence-based research development; youth enrichment activities for GLBTQ youth; and oversight of a service partnership composed of mental health, education/training and advocacy community-based organizations invested in the holistic well-being of GLBTQ youth.
 
-Studies show that GLBTQ youth experience high rates of harassment, bullying, stress, being kicked out of their home, substance abuse, and suicidal ideation or attempts. The Alliance provides safe spaces for GLBTQ youth to share experiences, feel supported, find community, and simply be themselves. It is the only non-profit organization in Miami-Dade County exclusively committed to providing prevention, early intervention social services, and advocacy to gay, lesbian, bisexual, transgender, and questioning (GLBTQ) youth, their families, and communities.
+Studies show that GLBTQ youth experience high rates of harassment, bullying, stress, being kicked out of their home, substance abuse, and suicidal ideation or attempts. **The Alliance provides safe spaces for GLBTQ youth to share experiences, feel supported, find community, and simply be themselves.** It is the only non-profit organization in Miami-Dade County exclusively committed to providing prevention, early intervention social services, and advocacy to gay, lesbian, bisexual, transgender, and questioning (GLBTQ) youth, their families, and communities.
 
