@@ -8,7 +8,7 @@ I am humbled to look back on most of 2020 and be aware that I actually had an un
 
 All that to say that I am fortunate to have everything I need, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. **For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!**
 
-If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
+If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you! **Sign up for reminders [here](https://forms.gle/hrq7YjmKUWU32ow29).**
 
 ➡️ [FAQs](#faqs)
 
