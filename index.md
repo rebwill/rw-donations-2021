@@ -6,7 +6,7 @@ In a happy coincidence, it turns out that this year, my birthday will be sharing
 
 I am humbled to look back on most of 2020 and be aware that I actually had an unusual amount of good fortune this year, all things considered. I was able to seal the deal on my career transition to software development, closing the door on a tumultuous and nervewracking previous year and beginning a new chapter with a wonderful team and learning environment; I failed spectacularly at fostering the sweetest angel baby dog in the world who is now My Dog; and I was able to spend over two months with my parents in Connecticut, and a week camping with my brother in the mountains of Colorado.
 
-All that to say that I am fortunate to have everything I need, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. **For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!**
+All that to say that I have been very fortunate, when so many people have, through no fault of their own, suffered blow after blow — financial, medical, social, emotional, mental, and beyond. **For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of Give Miami Day!**
 
 If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
 
@@ -35,17 +35,25 @@ Click on the names of any of the organizations [below](#orgs-i-love) to be taken
 
 ### ➡️ Are there any matching or bonus opportunities?
 
-I'm glad you asked! Give Miami Day is FULL of cool surprises, bonuses, and matching opportunities, including issue-based "Power Hours" in which organizations will be eligible for extra $$$ based on the money raised during the hour. The Give Miami Day team will be announcing more details over the coming weeks including schedule!
+I'm glad you asked! Give Miami Day is FULL of cool surprises, bonuses, and matching opportunities, including issue-based "Power Hours" in which organizations will be eligible for extra $$$, thanks to sponsors interested in contributing to each cause.
+
+Here are the Power Hours for my selected organizations. Donate during these times on Thursday, Nov. 19th for a chance to boost your contribution with bonus dollars!
+- [Lotus House](https://www.givemiamiday.org/rebecca-lt): **9am-10am** (Health & Wellness)
+- [WeCount!](https://www.givemiamiday.org/rebecca-wc): **2pm-3pm** (Civic Engagement, Advocacy & Equity)
+- [The Black Collective](https://www.givemiamiday.org/rebecca-tbc): **3pm-4pm** (Black Equity)
+- [The Alliance for GLBTQ Youth](https://www.givemiamiday.org/rebecca-agy): **4pm-5pm** (LGBTQ Equity)
+- [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk): 6pm-7pm (Environment & Urban Resilience)
+
 
 ### ➡️ I am enthusiastic but potentially forgetful! Can you please remind me about Give Miami Day and any Power Hours?
 
-Don't worry — same. I will be sending a couple of email reminders about Give Miami Day proper (Nov. 19th), early giving days (starting Nov. 16th), and bonus opportunities like Power Hours once they are announced! If you would like to receive the reminder, [sign up here](https://forms.gle/hrq7YjmKUWU32ow29).
+Don't worry — same. I will be sending a couple of email reminders about Give Miami Day proper (Nov. 19th), early giving days (starting Nov. 16th), and bonus opportunities like Power Hours! If you would like to receive the reminder, [sign up here](https://forms.gle/hrq7YjmKUWU32ow29).
 
 ---
 
 ## My Selected Organizations
 
-There are hundreds of nonprofits raising money on Give Miami Day that are doing excellent and necessary work, and I wish I could fully fund them all! In the meantime, I have selected 5 of my favorites for us to focus on this year. Check them out below!
+There are hundreds of nonprofits raising money on Give Miami Day that are doing excellent and necessary work, and I wish I could fully fund them all! In the meantime, I have selected five of my favorites for us to focus on this year. Check them out below!
 
 ![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
 
