@@ -1,3 +1,7 @@
+Greetings! I'm glad you're here.
+
+--------
+
 # *Final update: We raised $2,766.16!*
 *When I originally started this fundraiser, I put $500 as my goal for each of the five organizations. Between you and me, I thought it was way too much and I would never even come close, but hey, better to aim high, right? Landing among the stars, and all that. I decided I would be content and impressed if I reached half of the $2,500.*
 
@@ -6,9 +10,6 @@
 *I mean it when I say that this ended up being one of my best birthdays ever — and for that, I have YOU to thank! I am so honored, flattered, and STOKED that so many of you went out of your way to support these causes in celebration of my birthday. It means far more than any trinket, and will benefit many more people in an incredibly meaningful way.*
 
 -------
-
-
-Greetings! I'm glad you're here.
 
 ## All I want for [my birthday] is [change]
 
