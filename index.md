@@ -24,7 +24,7 @@ Without further ado, I present to you these two incredible organizations.
 
 ## ➡️ [The Bail Project](https://bailproject.org)
 
-### 💰 Fundraising page: [My GoFundMe](gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project) 💰
+### 💰 Fundraising page: [My GoFundMe](https://www.gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project) 💰
 
 ![Image](https://pbs.twimg.com/profile_banners/762690511836708864/1614035235/1500x500)
 _Photo credit: [@bailproject](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details) on Twitter._
@@ -60,7 +60,7 @@ For updates on bail reform, new program sites, and more, see The Bail Project's 
 
 **I'm in. Where do I donate?**
 
-You can find my GoFundMe [here](gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project).
+You can find my GoFundMe [here](https://www.gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project).
 
 ---
 
