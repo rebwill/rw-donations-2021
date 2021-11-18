@@ -24,6 +24,8 @@ Without further ado, I present to you these two incredible organizations.
 
 ## ➡️ [The Bail Project](https://bailproject.org)
 
+### 💰 Fundraising page: [My GoFundMe](gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project) 💰
+
 ![Image](https://pbs.twimg.com/profile_banners/762690511836708864/1614035235/1500x500)
 _Photo credit: [@bailproject](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details) on Twitter._
 
@@ -63,6 +65,8 @@ You can find my GoFundMe [here](gofundme.com/f/rebeccas-birthday-fundraiser-the-
 ---
 
 ## ➡️ Wet’suwet’en Land Defenders Legal Fund
+
+### 💰 Fundraising pages: 💰 [Unist'ot'en 2020 Legal Fund](https://actionnetwork.org/fundraising/unistoten2020legalfund/) or [Stand with Wet’suwet’en Land Defenders](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details)
 
 ![Image](https://d2vy9bbiawimza.cloudfront.net/960x640/RallyUpProduction/0b7b330013cb346bf124cb9c02297235.jpeg)
 _Photo credit: Stand with Wet’suwet’en Land Defenders fundraising [page](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details)_
