@@ -12,13 +12,9 @@ Last year my birthday fell in the midst of the peak (_a_ peak?) of the pandemic.
 
 If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one (or both! 🤪) causes I've chosen this year: The Bail Project and the Wet’suwet’en Land Defenders Legal Fund.**
 
-I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
-
 If you aren't able to donate at this time, I completely understand, and would be equally honored if you would consider contributing in any other way, like:
 - **Sharing this page or the fundraising pages** with your friends and family who might be interested
 - Reading up on these issues and **helping educate your peers and loved ones**, whether it's over coffee in the morning or over the Thanksgiving table.
-
-Without further ado, I present to you these two incredible organizations.
 
 ---
 
