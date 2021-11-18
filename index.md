@@ -33,7 +33,7 @@ Approximately 2.5 million people are stuck behind bars each year in "pretrial de
 
 **Wow, that seems very wrong.**
 
-Indeed it is. "The Eighth Amendment to the U.S. Constitution prohibits excessive bail and cruel and unusual punishment" [[1]](https://bailproject.org/faq/), and  it is being legally challenged on this basis in several states. Organizations like The Bail Project are working to support people who are in pretrial detention as well as advocate for policy changes.
+Indeed. "The Eighth Amendment to the U.S. Constitution prohibits excessive bail and cruel and unusual punishment" [[1]](https://bailproject.org/faq/), and  it is being legally challenged on this basis in several states. Organizations like The Bail Project are working to support people who are in pretrial detention as well as advocate for policy changes.
 
 **Do we even need bail? What's the alternative?**
 
@@ -54,7 +54,7 @@ For updates on bail reform, new program sites, and more, see The Bail Project's 
 
 **I'm in. Where do I donate?**
 
-You can find my GoFundMe [here]().
+You can find my GoFundMe [here](gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project).
 
 ---
 
