@@ -75,7 +75,7 @@ _Photo credit: Stand with Wet’suwet’en Land Defenders fundraising [page](htt
 
 The assault on indigenous people and lands has never stopped since European settlers first set foot on what we now know as the North American continent. It continues to this day, and a particularly egregious situation is currently unfolding in Wet’suwet’en territory in so-called northern British Columbia in Canada. It would be my honor to contribute to their fundraising efforts for their legal funds, as they fight to save their land from the egregious violations of the Canadian federal and provincial governments, the RCMP, and Coastal GasLink/TC Energy.
 
-I will respect their wishes for all donations to be made directly through their fundraising pages, rather than creating my own GoFundMe. Please use the links below to donate.
+In their requests for support, the Wet’suwet’en specify that contributions should be made directly through their existing fundraising pages, so I have linked to those below.
 
 **Where to donate**
 
