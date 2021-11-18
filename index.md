@@ -27,7 +27,7 @@ Without further ado, I present to you these two incredible organizations.
 ### 💰 Fundraising page: [My GoFundMe](https://www.gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project) 💰
 
 ![Image](https://pbs.twimg.com/profile_banners/762690511836708864/1614035235/1500x500)
-_Photo credit: [@bailproject](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details) on Twitter._
+_Photo credit: [@bailproject](https://twitter.com/bailproject/) on Twitter._
 
 **About:** 
 
