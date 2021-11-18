@@ -22,7 +22,7 @@ Without further ado, I present to you these two incredible organizations.
 
 ---
 
-## ➡️ [The Bail Project](https://bailproject.org)
+## ➡️ The Bail Project
 
 ### 💰 Fundraising page: [My GoFundMe](https://www.gofundme.com/f/rebeccas-birthday-fundraiser-the-bail-project) 💰
 
@@ -31,7 +31,7 @@ _Photo credit: [@bailproject](https://twitter.com/bailproject/) on Twitter._
 
 **About:** 
 
-> The Bail Project combats mass incarceration by disrupting the money bail system—one person at a time. We restore the presumption of innocence, reunite families, and challenge a system that criminalizes race and poverty. We’re on a mission to end cash bail and create a more just, equitable, and humane pretrial system. 
+> [The Bail Project](https://bailproject.org/) combats mass incarceration by disrupting the money bail system—one person at a time. We restore the presumption of innocence, reunite families, and challenge a system that criminalizes race and poverty. We’re on a mission to end cash bail and create a more just, equitable, and humane pretrial system. 
 
 **Why bail?**
 
