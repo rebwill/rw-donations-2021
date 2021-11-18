@@ -1,3 +1,7 @@
+Greetings! Thanks for stopping by.
+
+---
+
 ## It's that time of year again!
 
 You all really pulled out all the stops for my [birthday fundraiser](https://rebwill.github.io/give-miami-day-2020/) last year, raising a whopping total of $2,766.16 😮 That was by far the best birthday present I could have imagined — so I'm doing it again this year!
