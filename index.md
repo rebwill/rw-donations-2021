@@ -1,4 +1,4 @@
-## It's that time of year again
+## It's that time of year again!
 
 You all really pulled out all the stops for my [birthday fundraiser](https://rebwill.github.io/give-miami-day-2020/) last year, raising a whopping total of $2,766.16 😮 That was by far the best birthday present I could have imagined — so I'm doing it again this year!
 
@@ -6,11 +6,19 @@ Last year my birthday fell in the midst of the peak (_a_ peak?) of the pandemic.
 
 **For this reason, in lieu of gifts, there would be no greater honor on my birthday than to dedicate it to raising money for organizations doing important work.**
 
-If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one (or both! 🤪) organizations I've chosen this year: The Bail Project and Miami Waterkeeper.**
+If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one (or both! 🤪) causes I've chosen this year: The Bail Project and the Wet’suwet’en Land Defenders Legal Fund.**
 
 I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
 
-## ➡️ The Bail Project
+If you aren't able to donate at this time, I completely understand, and would be equally honored if you would consider contributing in any other way, like:
+- **Sharing this page or the fundraising pages** with your friends and family who might be interested
+- Reading up on these issues and **helping educate your peers and loved ones**, whether it's over coffee in the morning or over the Thanksgiving table.
+
+Without further ado, I present to you these two incredible organizations.
+
+---
+
+## ➡️ [The Bail Project](https://bailproject.org)
 
 ![Image](https://pbs.twimg.com/profile_banners/762690511836708864/1614035235/1500x500)
 _Photo credit: [@bailproject](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details) on Twitter._
@@ -78,3 +86,7 @@ I will respect their wishes for all donations to be made directly through their 
 🔗 [About the Wet’suwet’en people](https://unistoten.camp/about/wetsuweten-people/)
 
 🔗 More info: https://www.yintahaccess.com/
+
+---
+
+Thanks for sticking with me, and for joining me in learning about and contributing to these organizations. Any contribution you are able to make — whether it's by donating, sharing, or educating someone else about these issues — would mean the world to me. ❤️
