@@ -1,97 +1,80 @@
-Greetings! Thanks for being here.
-
--------
-
 ## It's that time of year again
 
-You all really pulled out all the stops for my [birthday fundraiser](https://rebwill.github.io/give-miami-day-2020/) last year, raising a whopping total of $2,766.16 😮 I've decided to — you guessed it — do it again this year!
+You all really pulled out all the stops for my [birthday fundraiser](https://rebwill.github.io/give-miami-day-2020/) last year, raising a whopping total of $2,766.16 😮 That was by far the best birthday present I could have imagined — so I'm doing it again this year!
 
-Last year my birthday fell in the midst of the peak (_a_ peak?) of the pandemic. While things are marginally better now, due largely to widespread access to the vaccine, for many people it continues to be a slow march of crushing financial, medical, and emotional challenges, with grief, trauma, sickness, and loss still their constant companions. 
+Last year my birthday fell in the midst of the peak (_a_ peak?) of the pandemic. While things are marginally better now (due largely to widespread access to the vaccine), in many respects it feels like groundhog day — for millions of people, the slow march of crushing financial, medical, and emotional challenges has not let up, and grief, trauma, sickness, and loss continue to be constant companions.
 
-With that being said, I am by far the exception to the rule this year, and millions of our friends, family, and neighbors have suffered unthinkable losses and serious financial, medical, and emotional blows. **For this reason, in lieu of gifts, I would like to turn my birthday into an opportunity for a larger impact — and what better way to do so than to take advantage of [Give Miami Day](https://www.givemiamiday.org/): one of the biggest [fundraising days](#faqs) of the year for hundreds of South Florida nonprofits)!!**
+**For this reason, in lieu of gifts, there would be no greater honor on my birthday than to dedicate it to raising money for organizations doing important work.**
 
-If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one of the below organizations between November 16-19th**. There are so many organizations doing incredible and necessary work in South Florida, but I've narrowed it down to a few that are particularly near and dear to my heart. I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
+If — at the risk of sounding presumptuous — you were considering getting me something for my birthday, **I'd love nothing more than for you to redirect those resources to a donation to one (or both! 🤪) organizations I've chosen this year: The Bail Project and Miami Waterkeeper.**
 
-**Sign up for reminders [here](https://forms.gle/hrq7YjmKUWU32ow29).**
+I'd love for you to check them out and consider helping me reach my fundraising goals for whichever one(s) speak(s) to you!
 
-➡️ [FAQs](#faqs)
+## ➡️ The Bail Project
 
-➡️ [See the organizations](#my-selected-organizations)
+![Image](https://pbs.twimg.com/profile_banners/762690511836708864/1614035235/1500x500)
+_Photo credit: [@bailproject](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details) on Twitter._
+
+**About:** 
+
+> The Bail Project combats mass incarceration by disrupting the money bail system—one person at a time. We restore the presumption of innocence, reunite families, and challenge a system that criminalizes race and poverty. We’re on a mission to end cash bail and create a more just, equitable, and humane pretrial system. 
+
+**Why bail?**
+
+Approximately 2.5 million people are stuck behind bars each year in "pretrial detention". This means they haven't even gone to trial yet, and are supposedly presumed innocent — but due to an unaffordable cash bail system, they can't pay to get out (like people with access to money would do). In effect, it is the criminalization of poverty — and often race, as this affects people of color disproportionately. This might be a bit of an invisible problem to you if you or your family have not been affected by incarceration, but for millions of people whose loved ones are locked up indefinitely without even having gone to trial, it's deeply, violently unjust.
+
+**Wow, that seems very wrong.**
+
+Indeed it is. "The Eighth Amendment to the U.S. Constitution prohibits excessive bail and cruel and unusual punishment" [[1]](https://bailproject.org/faq/), and  it is being legally challenged on this basis in several states. Organizations like The Bail Project are working to support people who are in pretrial detention as well as advocate for policy changes.
+
+**Do we even need bail? What's the alternative?**
+
+From The Bail Project's excellent FAQs:
+
+> Cash bail, by definition, is a form of conditional release for a person who has been accused of a crime, but has yet to have a trial. The idea is simple: require people to put an amount of money they can afford on the line and they will have a financial incentive to come back to court until their case is resolved. **Over the past few decades, however, cash bail has become a mechanism for incarcerating low-income people before trial. Judges routinely set bail amounts that people cannot afford, particularly for people of color. As a result, we have a two-tier system where two individuals charged with exactly the same thing are treated differently based on their race and economic status.**
+
+> More equitable approaches do exist. Chief among these is release on recognizance, which allows individuals to return to their communities without bail on the condition that they come back to court as required. While judges across the U.S. already have broad discretion to allow release on recognizance, most continue to set cash bail at unaffordable amounts, keeping people in jail pretrial solely because of their poverty.
+
+> **Our clients’ success in coming back to court demonstrates that cash bail is not necessary to ensure people come back to court.** The Bail Project Community Release with Support Model works, offering an alternative that is more just, equitable, and effective.
+
+**How does the Bail Project National Revolving Bail Fund work?**
+
+> Cash bail is returned at the end of a case when a person has made all their court appearances. Our teams of Bail Disruptors and Client Advocates use standardized court reminder procedures and established social-service partnerships to support our clients in making their court dates. **As their cases close, bail is repaid back into our fund and recycled to help additional clients. As a result, the same donation can be used over and over, creating a massive force multiplier.**
+
+For a history of bail and bail funds in the US, see [here](https://bailproject.org/freedom-should-be-free/).
+For updates on bail reform, new program sites, and more, see The Bail Project's [newsroom](https://bailproject.org/newsroom/).
+
+**I'm in. Where do I donate?**
+
+You can find my GoFundMe [here]().
 
 ---
 
-## FAQs
+## ➡️ Wet’suwet’en Land Defenders Legal Fund
 
-### ➡️ What is Give Miami Day?
+![Image](https://d2vy9bbiawimza.cloudfront.net/960x640/RallyUpProduction/0b7b330013cb346bf124cb9c02297235.jpeg)
+_Photo credit: Stand with Wet’suwet’en Land Defenders fundraising [page](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details)_
 
-From their [About](https://www.givemiamiday.org/about) page:
-> One of the nation's biggest 24-hour annual giving events, Give Miami Day is an online campaign where all locals are philanthropists. This year -- as our nonprofit community continues their essential work in the face of a serious pandemic, economic crisis and the impact of systemic racism -- Give Miami Day will be more vital than ever. While we all count on Miami-Dade's nonprofits to serve our region day after day, this time, they're counting on us. 
+**About** 
 
-> On Thursday, November 19th, 2020, we invite everyone to explore the online profiles of hundreds of Miami-Dade nonprofits that, with limited resources and staff, always find a way to provide the supplies, services and support our residents need. We encourage you to find a cause or an organization you believe in and make a charitable donation.
+The assault on indigenous people and lands has never stopped since European settlers first set foot on what we now know as the North American continent. It continues to this day, and a particularly egregious situation is currently unfolding in Wet’suwet’en territory in so-called northern British Columbia in Canada. It would be my honor to contribute to their fundraising efforts for their legal funds, as they fight to save their land from the egregious violations of the Canadian federal and provincial governments, the RCMP, and Coastal GasLink/TC Energy.
 
-> Since 2012, Give Miami Day has raised more than $61 million.
+I will respect their wishes for all donations to be made directly through their fundraising pages, rather than creating my own GoFundMe. Please use the links below to donate.
 
-### ➡️ How do I donate?
+**Where to donate**
 
-Click on the names of any of the organizations [below](#orgs-i-love) to be taken to my personal "Champion" page, where you can donate to the organization. Donating via this page means your contribution will be counted towards my fundraising total, which will be pretty cool to see!
+- [Unist'ot'en 2020 Legal Fund](https://actionnetwork.org/fundraising/unistoten2020legalfund/)
+- [Stand with Wet’suwet’en Land Defenders](https://go.rallyup.com/wetsuwetenstrong/Campaign/Details)
 
-### ➡️ Are there any matching or bonus opportunities?
+**More information and resources**
 
-I'm glad you asked! Give Miami Day is FULL of cool surprises, bonuses, and matching opportunities, including issue-based "Power Hours" in which organizations will be eligible for extra $$$, thanks to sponsors interested in contributing to each cause.
+🔗 Their [press release](https://static1.squarespace.com/static/5c51ebf73e2d0957ca117eb5/t/619168973821566fa355db65/1636919447456/PressReleaseDay50.pdf) regarding the most recent events of Nov. 14, 2021, in which "members of the Gidimt’en Clan evicted Coastal GasLink (CGL) employees from unceded Wet’suwet’en territory, upholding ancient Wet’suwet’en trespass laws and an eviction notice first served to CGL in 2020 by the Wet’suwet’en Hereditary Chiefs."
 
-Here are the Power Hours for my selected organizations. Donate during these times on Thursday, Nov. 19th for a chance to boost your contribution with bonus dollars!
-- [Lotus House](https://www.givemiamiday.org/rebecca-lt): **9am-10am** (Health & Wellness)
-- [WeCount!](https://www.givemiamiday.org/rebecca-wc): **2pm-3pm** (Civic Engagement, Advocacy & Equity)
-- [The Black Collective](https://www.givemiamiday.org/rebecca-tbc): **3pm-4pm** (Black Equity)
-- [The Alliance for GLBTQ Youth](https://www.givemiamiday.org/rebecca-agy): **4pm-5pm** (LGBTQ Equity)
-- [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk): 6pm-7pm (Environment & Urban Resilience)
+🔗 [Tweet](https://twitter.com/gidimten/status/1460488812748886018?s=21):
+> "Yesterday, we took our land back. With our Haudenosaunee allies, we enforced our ancient trespass laws and have permanently closed access to our territory. The Morice Forest Service Road has been destroyed and access to Coastal Gaslink is no longer possible."
 
+🔗 [Video](https://www.youtube.com/watch?v=Bjxwo-ZcFU8): Pipeline Workers Served Mandatory Evacuation From Gidimt'en Land
 
-### ➡️ I am enthusiastic but potentially forgetful! Can you please remind me about Give Miami Day and any Power Hours?
+🔗 [About the Wet’suwet’en people](https://unistoten.camp/about/wetsuweten-people/)
 
-Don't worry — same. I will be sending a couple of email reminders about Give Miami Day proper (Nov. 19th), early giving days (starting Nov. 16th), and bonus opportunities like Power Hours! If you would like to receive the reminder, [sign up here](https://forms.gle/hrq7YjmKUWU32ow29).
-
----
-
-## My Selected Organizations
-
-There are hundreds of nonprofits raising money on Give Miami Day that are doing excellent and necessary work, and I wish I could fully fund them all! In the meantime, I have selected five of my favorites for us to focus on this year. Check them out below!
-
-![Image](https://pbs.twimg.com/profile_images/762430516549169153/lZcKigih_400x400.jpg)
-
-### ➡️ [Miami Waterkeeper](https://www.givemiamiday.org/rebecca-mwk)
-
-The word that comes to mind when I think of Miami Waterkeeper's work is FIERCE. Their ferocious work has played a critical role in protecting our reefs from development projects and pollution; stopping sewage leaks that threaten our ecosystem; applying pressure to the Turkey Point Nuclear Plant to clean up its environmental impacts; the recently successful campaign to reduce fertilizer runoff into Biscayne Bay, which causes both acute and chronic die-offs of seagrass and marine life; among many more efforts.
-
-Along with their legal advocacy efforts, Miami Waterkeeper runs science and research programs, keeping their finger on the pulse of Biscayne Bay, along with community outreach programs training local residents to become defenders and advocates of our waters. Whether we know it or not, we *all* rely on Miami Waterkeeper's efforts much more than many of our residents and leaders realize. **Join me in protecting the lifeblood of our community — clean water and healthy marine ecosystems — and supporting Miami Waterkeeper this Give Miami Day.**
-
-![Image](https://pbs.twimg.com/profile_images/1175393336980660225/O0TMqHzE_400x400.jpg)
-
-### ➡️ [WeCount!](https://www.givemiamiday.org/rebecca-wc)
-
-Low-wage, immigrant agricultural workers are among the hardest hit communities by COVID-19. With few resources even before the pandemic, affected by layoffs in many industries, and ineligible for most state or federal forms of assistance, many families are struggling to meet basic needs like food and housing. All of this is compounded to their struggles even before the virus, like wage theft, working conditions, and legal vulnerability. 
-
-**WeCount! works to provide legal, social, and survival support for these families, and in April launched a mutual aid fund that has distributed nearly $200,000 in direct cash assistance to immigrant workers, along with broadcasting health and safety information related to the coronavirus via their community radio station, Radio Poder 97.7 FM.**
-
-![Image](https://pbs.twimg.com/profile_images/1182741031114149891/DVPRvBNO_400x400.jpg)
-
-### ➡️ [The Black Collective](https://www.givemiamiday.org/rebecca-tbc)
-
-**Led by accomplished local leaders, the Black Collective works to promote a shared agenda to elevate political consciousness and amplify the economic power of Black communities.** Their programs target critical initiatives like the 2020 Census, ensuring that everyone in our community is accounted for in funding, representation, and more over the next 10 years; the Freedom Fellowship for local leaders focused on voter engagement and community education; a trilingual 2020 Voter Guide; and more. They also launched a mutual aid fund to support families and individuals in need, in partnership with The Smile Trust and The Miami Climate Alliance.
-
-![Image](https://pbs.twimg.com/profile_images/451899253934538752/CzJedDwl_400x400.jpeg)
-
-### ➡️ [Lotus House](https://www.givemiamiday.org/rebecca-lt)
-
-Lotus House is dedicated to improving the lives of homeless women, youth and children. They currently provide housing, food, shelter, education, therapeutic support, and more for over 500 women and children, most of whom are people of color whose lives have been marked by poverty, violence, and discrimination. As you can imagine, the needs that Lotus House is working to meet are greater than ever as even more families have gone into crisis this year — in addition to the fact that they had to cancel their largest fundraising event of the year.
-
-**Guided by trauma-informed, evidence-based, best practices, Lotus House is a bright light amidst difficult and dangerous times for many women, youth, and children, offering support for basic needs, education, therapy, and more.** They are more in need of our support than ever.
-
-![Image](https://pbs.twimg.com/profile_images/1216021438626500608/7IceWZAM_400x400.jpg)
-
-### ➡️ [The Alliance for GLBTQ Youth](https://www.givemiamiday.org/rebecca-agy)
-
-The Alliance supports GLBTQ youth and their families through care coordination services; family advocacy and support; education and awareness activities; practice and evidence-based research development; youth enrichment activities for GLBTQ youth; and oversight of a service partnership composed of mental health, education/training and advocacy community-based organizations invested in the holistic well-being of GLBTQ youth.
-
-Studies show that GLBTQ youth experience high rates of harassment, bullying, stress, being kicked out of their home, substance abuse, and suicidal ideation or attempts. **The Alliance provides safe spaces for GLBTQ youth to share experiences, feel supported, find community, and simply be themselves.** It is the only non-profit organization in Miami-Dade County exclusively committed to providing prevention, early intervention social services, and advocacy to gay, lesbian, bisexual, transgender, and questioning (GLBTQ) youth, their families, and communities.
-
+🔗 More info: https://www.yintahaccess.com/
